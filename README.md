@@ -1,1 +1,0 @@
-# om-shiva-grit-udhyog
